@@ -1,3 +1,8 @@
 <?php echo "csjkasjdbskad";?>
 s;lfk bhsejfnlk fhfbfk
-as kdb sajdjkabaklihrukwqrlk qnwoh
+we
+addcslashesd
+dd
+datedsa
+dsaas
+d abs
